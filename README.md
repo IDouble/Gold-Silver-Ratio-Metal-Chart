@@ -16,3 +16,5 @@
 ## [🌑 CHF/Silver Per Kg (Kilogram) Chart 💹](https://ayidouble.github.io/Gold-Silver-Ratio-Metal-Chart/CHFSILVERKG)
 
 ## [🌕 CHF/Gold Per Kg (Kilogram) Chart 💹](https://ayidouble.github.io/Gold-Silver-Ratio-Metal-Chart/CHFGOLDKG)
+
+![Binance Ready to give crypto a try ? buy bitcoin and other cryptocurrencies on binance](Images/binance.jpg)
